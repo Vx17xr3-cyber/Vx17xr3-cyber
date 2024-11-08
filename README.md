@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AI study projects and creating scripts
 - 📫 How to reach me is through Instagram: Vx17xr3 (Personal) & J4M3ZN4710N (Spam)
 - 😄 Pronouns: You tell me
-- ⚡ Fun fact: I have a good photo graphic memory that contributes to my Digital Artwork
+- ⚡ Fun fact: I have a good photographic memory that contributes to my Digital Artwork
 
 <!---
 Vx17xr3-cyber/Vx17xr3-cyber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
